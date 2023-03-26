@@ -7,3 +7,7 @@
 ![image](https://user-images.githubusercontent.com/123584405/227783374-ab75fb96-ccf8-4b65-b1fd-26488bbf67ba.png)
 
 Destek : discord.gg/altyapilar = Raven
+
+Main Page > romanwashere
+
+Links Page > VnEnes
